@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ndidamaka Josepine Ike
-- 👀 An Accountant ,Transitioning to TECH  as an Entry level Data Analyist with goal in becoming a Financial Analyist
+- 👀 An Accountant ,Transitioning to TECH  as an Entry level Data Analyst with goal in becoming a Financial Analyst
 - 🌱 I just completed my 3 months traning with LADIES iN TECH AFRICA.
 - 💞️ I’m looking to collaborate on any on going project .I am open for Internship Opportunity .
 - 📫 I can be reach here .https://www.linkedin.com/in/ndidiamaka-ike-
